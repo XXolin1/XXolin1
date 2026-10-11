@@ -1,3 +1,2 @@
-hello, regardez made in abyss / re zero / madoka magica
-voila voila, 
-et holo milim et rikka les best.
+Bienvenue sur mon GitHub.
+Une grande quantité de mes projets ne sont pas en public pour le moment.
